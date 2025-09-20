@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Shreepal Goyal</h1>
 - 📫 How to reach me **skgoyalyt0@gmail.com**
 
-- 📄 View Resume [#](#)
+- 📄 View Resume [Drive link](https://drive.google.com/file/d/10ZgDBDzdFU8sJs4n5gMreVmmuBQQTc87/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
